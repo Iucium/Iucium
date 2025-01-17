@@ -2,4 +2,4 @@
 <h2>  <a href="https://earthscore.straw.page/"style="color:#a52f29">MY STRAWPAGE</a></center> , SUPPORT VICTIMS !! , FEEL FREE 2 INTERACT </h2>
 <center> <img src="https://64.media.tumblr.com/fb6b4c9b50a0e10ef4776a9bfd897ef8/86d03b3b12bd0087-0f/s640x960/7ef45c1d602a0ed3fe747753c29297a83d6ec5e6.pnj"></img><center>
 
-https://magma.com/d/NpOQ2pU6rm
+
